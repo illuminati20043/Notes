@@ -1,3 +1,5 @@
+# What is the Nakba and how does it influence the conflict ?#
+
 
 The nakba means "catastrophe" Arabic. It took place in 1948, in which more than 750k Palestinians were forcefully displaced from their homes and pushed into refugee camps in East Jersusalem, the West Bank, neighboring countries (e.g. Jordan).
 
