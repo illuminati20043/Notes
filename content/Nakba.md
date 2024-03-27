@@ -16,7 +16,9 @@ According to Benny Morris , four phases :
 - 250 000-300 000 Palestinian Arabs from Haïfa, Tabariya, Beit Shean, Safed, Jaff and Acre losing 90% of the population. Possible start of war, and mostly possible plan going through.
 - 50 -70k Arab Palestinians displaced through military from Lydda and Ramallah. Then 200-220k have to flee because of massacre, except for Christian Palestinians.
 - 30-40k Arabs are displaced to neighboring countries
-### Phase 1 ###
+### Phase 1 : Political and Military Phase###
+
+#### November 1947 - March 1948 ####
 
 - 29th of November 1947 : UN Partition Plan of Palestine into a Jewish State and an Arab State
 - Established Jewish Population : 1 million, with 42% Arabs
@@ -30,9 +32,9 @@ According to Benny Morris , four phases :
 - February 1948 :  attacks by Jewish militias on villages in the subdistrict of Haifa – Qisarya , Barrat Qisarya , Khirbat al-Burj , and Daliyat al-Rawha -- and Sa'sa' (in the Safad subdistrict) left between 60 and 80 killed and 35 homes destroyed. The survivors were driven out.
 
 
-### Phase 2 ###
 
-March 1948 : 
+
+#### March 1948 : ###
 
 **6th of March 1948** :
 
@@ -59,25 +61,25 @@ Expected enemy :
 - Local forces
 
 
-The Haganah also knows that there is a conjoint plan between the three force
+The Haganah also knows that there is a conjoint plan between the three forces.
+ 
 Expected tactics : 
+- Attacks on settlements, using heavy infantry weapons, as well as field artillery, armoured vehicles, and the air force.
+- Air strikes against centres cities
+- Harassment operations carried out by small forces against transportation arteries and settlements to give the operations mentioned above direct or tactical support. These forces will also carry out sabotage operations against vital economic facilities and terrorist raids within cities
+
+Operational objectives : 
+- Self-defence
+- Ensuring freedom of military, economic activity
+- Preventing the enemy from using frontline positions
+- Economic pressure ==war of annihilation???==
+- Restricting the capability of the enemy by carrying out limited operations
+- Controlling government services and property within the borders of the state and ensuring the supply of essential public services in an effective manner.
 
 
 
 
-## [Yoav Gelber](https://fr.wikipedia.org/wiki/Yoav_Gelber) ##
-
-
-# Consequences #
-
-
-
-
-
-
-
-# Impact on the conflict
-
+##
 
 
 
