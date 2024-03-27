@@ -47,12 +47,16 @@ Plan D is based on three previous plans :
 - Plan B, September 1945
 - May 1946 Plan
 - Yehoshua Plan, 1948
+
 The objective of this plan is :
 - to gain control of the areas of the Hebrew state and defend its borders. It also aims at gaining control of the areas of Jewish settlement and concentration which are located outside the borders \[of the Hebrew state\] against regular, semi-regular, and small forces operating from bases outside or inside the state.
+
 Expected enemy : 
 - Liberation Army affiliated with the Arab League
 - Neighboring countries' forces
 - Local forces
+
+
 The Haganah also knows that there is a conjoint plan between the three force
 Expected tactics : 
 
