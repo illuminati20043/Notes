@@ -42,7 +42,9 @@ On the ground, although the Haganah forces were theoretically better equipped an
 
 
 **Plan Dalet (Plan D because Dalet is the fourth letter in Hebrew) : Possible ethnic cleansing?**
+
 [Source : Plan Dalet March 1948](https://palestina-komitee.nl/wp-content/uploads/2017/11/Plan-Dalet-March-1948.pdf)
+
 Plan D is based on three previous plans :
 - Plan B, September 1945
 - May 1946 Plan
