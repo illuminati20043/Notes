@@ -32,10 +32,15 @@ According to Benny Morris , four phases :
 
 ### Phase 2 ###
 
-- March 1948 : 
+March 1948 : 
+
 **6th of March 1948** :
+
 Since the Brits are still occupying many places in Israel- Palestine, Haganah cannot do anything other than be on the defensive. The Arab Liberation Army and the Holy Jihad are an issue to them.
 On the ground, although the Haganah forces were theoretically better equipped and better prepared for war than the already engaged enemy forces, they suffered several significant setbacks. For example, the hundred thousand Jews in Jerusalem were besieged by Abdel Kader al-Husseini's men, making it impossible to resupply them, while almost all of the armored vehicles used for convoys were destroyed. The situation of isolation was the same for the settlements in the Upper Galilee, the Hebron area, and the Negev. Furthermore, the anticipated entry into war of the regular armies of neighboring Arab countries, which were considered more formidable than the Arab forces in Palestine, was not a good sign.
+
+
+
 **Plan Dalet (Plan D because Dalet is the fourth letter in Hebrew) : Possible ethnic cleansing?**
 [Source : Plan Dalet March 1948](https://palestina-komitee.nl/wp-content/uploads/2017/11/Plan-Dalet-March-1948.pdf)
 Plan D is based on three previous plans :
