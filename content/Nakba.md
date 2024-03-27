@@ -79,8 +79,6 @@ Operational objectives :
 
 
 
-##
-
 
 
 
