@@ -12,7 +12,7 @@ Zionism is a nationalist movement that started in the late 19th century focusing
 
 **Genesis 15:18-21 :** *On that day the Lord made a covenant with Abram and said, “To your descendants I give this land, from the Wadi of Egypt to the great river, the Euphrates— the land of the Kenites, Kenizzites, Kadmonites, Hittites, Perizzites, Rephaites, Amorites, Canaanites, Girgashites and Jebusites.”*
 
-![[Pasted image 20240327055438.png]]The described land 
+
 
 
 **Exodus 23:31 :** *“I will establish your borders from the Red Sea to the Mediterranean Sea, and from the desert to the Euphrates River. I will give into your hands the people who live in the land, and you will drive them out before you.*
