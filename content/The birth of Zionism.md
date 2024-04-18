@@ -27,7 +27,7 @@ The land of Israel is seen as a promised land to the Jewish people, a gift for t
 
 
 
-# The different exiles 
+# Israel under different empires
 
 ## Persia :
 
@@ -45,6 +45,7 @@ Persia has been a jewish residence area since 727 BCE, when they were captured b
 
 
 [History of Judaism in Greece](https://en.wikipedia.org/wiki/History_of_the_Jews_in_Greece#History_of_Judaism_in_Greece)
+
 [Jewish Exiles](https://www.chabad.org/library/article_cdo/aid/3671017/jewish/Discover-the-Four-Exiles-of-the-Jewish-People.htm)
 
 
@@ -53,4 +54,10 @@ After the fall of Persia, Jerusalem fell into the hands of Alexander the Great. 
 In 140 BCE, a group of Jews stand up to the tyrant and drive him out of Israel : this event is celebrated as the Hanukkah.
 
 
+## Rome : ##
 
+Jewish-Roman relations are very ambiguous, going from very cordial to hostile and antigonistic. One needs a whole book to study Jewish-Roman relations, but for this article, we'll restrain ourselves to a few famous periods. 
+
+-  The Roman Republic :
+
+Judea was conquered by the Roman Republic in 63 BCE, by the Roman general and future consul Pompey, marking the start of Roman involvment in Jewish affairs. Judea therefore became a client kingdom of the Roman Republic.
