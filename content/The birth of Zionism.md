@@ -41,11 +41,16 @@ Persia has been a jewish residence area since 727 BCE, when they were captured b
 
 
 
-## Ancient Greece :##
+## Ancient Greece : ##
 
 
 [History of Judaism in Greece](https://en.wikipedia.org/wiki/History_of_the_Jews_in_Greece#History_of_Judaism_in_Greece)
+[Jewish Exiles](https://www.chabad.org/library/article_cdo/aid/3671017/jewish/Discover-the-Four-Exiles-of-the-Jewish-People.htm)
 
+
+After the fall of Persia, Jerusalem fell into the hands of Alexander the Great. Instead of chaos and discord, Greeks and Jews managed to find a compromise, going so far as to sharing lifestyles and culture. The Ptolemian dynasty would go on to respect Jews, until Antiochus takes power. Not only does he murder thousands and impose antisemitic decrees, he also represses jewish practices like the Shabbat and circumcision.
+
+In 140 BCE, a group of Jews stand up to the tyrant and drive him out of Israel : this event is celebrated as the Hanukkah.
 
 
 
